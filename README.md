@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lmedinaC
+- 👀 I just wanna learn more 👀
